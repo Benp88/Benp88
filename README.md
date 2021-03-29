@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Benp88
 - 👀 I’m interested in ...:cat2:
 - 🌱 I’m currently learning ...javascript 
-- 💞️ I’m looking to collaborate on ... 
+- 💞️ I’m looking to collaborate on ... New career opportunities 
 - 📫 How to reach me ...ben.walker1@Booking.com
